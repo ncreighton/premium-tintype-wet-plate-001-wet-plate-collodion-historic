@@ -1,0 +1,2 @@
+# premium-tintype-wet-plate-001-wet-plate-collodion-historic
+Tired of unpredictable tintypes, wasted silver, and fogged plates? The Wet Plate Collodion &amp; Historical Photography Lab replaces guesswork with a repeatable, safety-first workflow that delivers sharp, consistent results every time.  This isn't another generic history book—it's a modern lab manual for the 19th-century process. It solves the biggest
